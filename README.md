@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ale-ria
+- 👀 I’m interested in heath care 
+- 🌱 I’m currently learning ... treating of wounds 
+- 💞️ I’m looking to collaborate on ... pedicure specifically people with diabetes. 
+- 📫 How to reach me ... Facebook as Gloria Agyei.
+- have a good one.
+- 
